@@ -1,6 +1,6 @@
 # Hi there, I'm Mohammed Safwan K K 👋
 
-### AI & ML Enthusiast | Data Analyst | AI & Data Science Graduate
+### AI & ML Engineer | Data Analyst | AI & Data Science Graduate
 
 📍 Based in Dubai, United Arab Emirates
 
